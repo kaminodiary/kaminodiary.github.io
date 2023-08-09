@@ -1,0 +1,1 @@
+# kaminodiary.github.io
